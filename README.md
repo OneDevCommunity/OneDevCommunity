@@ -36,10 +36,9 @@ As a community, we can provide words-of-kindness, resources or options to solve 
 
 
 #### Working Sessions
+All held on Zoom, https://zoom.us/j/5973875285
 *   Wednesday, March 25th @10am ET / 9am CT / 8am MT / 7am PT / 2pm UK
-    *   [https://meet.google.com/con-vubx-ica](https://meet.google.com/con-vubx-ica) 
 *   Thursday, March 26th @ 6pm ET / 5pm CT / 4pm MT / 3pm PT / 10pm UK
-    *   [https://meet.google.com/vro-icsp-rbi](https://meet.google.com/vro-icsp-rbi) 
 *   Other dates to be added
 
 
